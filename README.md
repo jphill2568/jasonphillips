@@ -1,2 +1,2 @@
 # jasonphillips
-this is my suppository of shtuff i find interesting
+this is my suppository of stuff i find interesting/useful.  I just copy and paste...
